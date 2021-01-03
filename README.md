@@ -2,7 +2,7 @@
 
 ## A new type of behaviour based assessment that's powered by neuroscience provided by Arctic Shores Limited.
 
-## This assesment is given by Airbus (headquarter), although the position was cancelled due to the outbreak of Covid-19, the result is quit helpful for me to understand myself. As a result, I provide the result for those who would like to know my personality.
+## This assesment was given by Airbus (headquarter), although the position was cancelled due to the outbreak of Covid-19, the result is quite helpful for me to understand myself. As a result, I provide the report for those who would like to know my personality.
 
 ### keywords: 
 * Tends to process larger amounts of information.
